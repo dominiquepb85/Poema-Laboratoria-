@@ -7,3 +7,6 @@ De creencia y empatía
 
 Tan solo si todos unidos 
 Le incluimos empatía 
+
+Creeme que el mundo sería 
+Distinto
